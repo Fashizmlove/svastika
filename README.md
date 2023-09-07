@@ -1,0 +1,2 @@
+# svastika
+mylove
